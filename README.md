@@ -1,4 +1,4 @@
-### I'm Arms🎏🐳🐬🐡🐠🌊
+### Hi, I'm Arms🎏🐳🐬🐡🐠🌊
 
 - 💻 I’m iOSer
 - 💬 I said little
